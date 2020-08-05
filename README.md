@@ -1,1 +1,1 @@
-# -LolitaEncyclopedia
+# -Lolita服饰图鉴
