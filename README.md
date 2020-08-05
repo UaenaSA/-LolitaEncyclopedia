@@ -1,1 +1,1 @@
-# -Lolita服饰图鉴
+# Lolita服饰图鉴
